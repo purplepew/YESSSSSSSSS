@@ -31,9 +31,9 @@ lying leg raises 10 or more.
 THEN REPEAT THE CIRCUIT, 3 OR MORE.  
 
 
-Full Squat  15
-Hop Squat  15
-Ab until failure 
+Full Squat  15  
+Hop Squat  15  
+Ab until failure   
 
 
 
