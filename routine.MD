@@ -16,17 +16,17 @@
 
 [Calisthenics](https://www.youtube.com/watch?v=ay15dc2cvm0)  
 
-Switching Lunges
+Switching Lunges 15
 
-straight leg bodyweight pull up 10 or more.  
+straight leg bodyweight pull up 15 or more.  
 
 jumping squat 15 or more.  
 
 push up  
 
-Lying tuck  10 or more
+Lying tuck  15 or more
 
-lying leg raises 10 or more.  
+lying leg raises 15 or more.  
 
 THEN REPEAT THE CIRCUIT, 3 OR MORE.  
 
